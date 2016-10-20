@@ -1,4 +1,3 @@
-# Cara-Dempul-Sebelum-Cat-Mobil-Diaplikasikan-
 <img src="https://i.ytimg.com/vi/sYHEtwhcajQ/hqdefault.jpg">
 <p>Untuk mengembalikan tampilan mobil berusia lama yang cenderung sudah kusam, biasanya orang memilihnya untuk dilakukan cat ulang. Dan sebelum dicat, agar menghasilkan warna yang sempurna, perlu dilakukan perbaikan pada bodi mobil yaitu dengan cara dempul. Sehingga selain tenaga ahli untuk mengecat mobil, biasanya bengkel body repair mobil juga memiliki tenaga khusus untuk dempul. </p>
 <p>Bila membaca <a href="http://daihatsu.co.id/tips-sahabat/artikel/detail/40/cara-mengecat-mobil">cara mudah mengecat bodi mobil</a> yang banyak terdapat di internet, nampaknya memang sangat mudah untuk dipraktekkan dan bisa dilakukan sendiri. Namun, perlu pula mengetahui cara dempul yang benar sebelum cat mobil tersebut diaplikasikan. Tujuannya adalah agar hasil pengecatan menjadi bagus karena kondisi bodi mobil sudah halus, rata dan siap untuk dicat.</p>
